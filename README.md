@@ -4,7 +4,7 @@ will add more and remove some in future
 <img width="1146" height="947" alt="image" src="https://github.com/user-attachments/assets/0d7fedac-96df-4bd3-bb88-fc2e1972cd21" /> <img width="882" height="789" alt="image" src="https://github.com/user-attachments/assets/406225cc-460d-46fc-b696-f8461592731d" />
 
 
-june 6-10 2026. nortmelly sketch, really proud of this one. there'll be a part 2 to this
+june 6-10 2026. nortmelly sketches, really proud of the first one
 
 <img width="1160" height="857" alt="image" src="https://github.com/user-attachments/assets/50a11b57-e227-4289-a477-8eced62c110a" />
 
